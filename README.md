@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **diveshgoel79@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1J-MoEJ-UNIQk7KJ1MvEEyLZMIryx-JQH/view?usp=drive_link](https://drive.google.com/file/d/1J-MoEJ-UNIQk7KJ1MvEEyLZMIryx-JQH/view?usp=drive_link](https://drive.google.com/drive/u/0/home)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1FMqoF1uaoDJNOe-yGq0R9rGk8taqRc_r/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
